@@ -14,3 +14,10 @@
 ***both blod and itolic type of font styles***
 
 [google](https://www.google.com/search?q=www.google+meet&rlz=1C1GCEB_enIN980IN980&oq=www.g&aqs=chrome.1.69i57j0i433i512j0i131i433i512j0i433i512j0i512j69i60l3.15147j0j7&sourceid=chrome&ie=UTF-8)
+
+![ntr](https://wallpaperaccess.com/full/2274491.jpg)
+
+* Fruits
+  * mangoes
+  * apples
+  * bananas
